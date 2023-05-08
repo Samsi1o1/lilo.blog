@@ -13,6 +13,8 @@ Der Ukrainekrieg hat tausende von UkrainerInnen in die Schweiz zersetzt. Sofiia 
 
 *Eine Reportage von Samuel Bossart*
 
+![Sofiia auf ihrem Balkon in der Berner Innenstadt. Bild: Samuel Bossart](img_0051_3-2-.jpg)
+
 Ein kurzes Zögern, ist es wirklich die richtige Türe? An der Klingel steht nämlich «Sabine Handschin» und nicht «Sofiia Zinchenko». Ist es tatsächlich die Wohnung, in die meine Familie einen Grittibänz oder ein selbstgebackenes Brot gebracht hat? Die Türe geht nach nur wenigen Sekunden auf. Eine lachende Sofiia heisst mich willkommen. Der kurze Gang ist kahl, entlang der weissen Wände stehen auf schwarzem Linoleum ein paar Winterschuhe. Sofiia gestikuliert - komm herein. 
 
 ![Im Gegensatz zur Klingel, ist Sofiias Briefkasten zumindest temporär angeschrieben. Bild: Ruth Bossart](67a9def9-2768-447c-b7ff-e3ebd82bc1bb.jpg)
