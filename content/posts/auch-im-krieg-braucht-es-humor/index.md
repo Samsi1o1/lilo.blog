@@ -7,7 +7,7 @@ image = "img_0051_3-2-.jpg"
 +++
 {{<lead>}}
 
-Der Ukrainekrieg hat tausende von Ukrainer-/innen in die Flucht getrieben. Sofiia Zinchenko hat in der Schweiz Unterschlupf gefunden - auf Zeit, bei der obersten Verantwortlichen für Migration.
+Der Ukrainekrieg hat tausende von Ukrainer-/innen in die Flucht getrieben. Sofiia Zinchenko hat in der Schweiz Unterschlupf gefunden - bei der obersten Verantwortlichen für Migration.
 
 {{</lead>}}
 
